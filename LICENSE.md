@@ -1,4 +1,4 @@
-# 
+# Oficial Vegas Pro ferramentas para Mac OS | Atualizado Vegas Pro ferramentas para PC Windows. Com troca de cenas e biblioteca de modelos — otimizado para máximo desempenho em cada plataforma.
 
 
 
